@@ -1,12 +1,12 @@
 **Welcome, this is my space to share my projects and activities, this is just a hobby
 
--I study at Alura with programming;
+-I study at [Alura](https://www.alura.com.br) with programming;
 -I'm learn the JavaScript language;
 -I use this space to share my projects done in class.
 
 ###You can contact me:
 
-@raissaandra_ 
+[@raissaandra_](https://www.instagram.com/raissaandra_?igsh=djA3NXVuZDIzdmF4)
 
 or
 
