@@ -6,4 +6,11 @@
 
 ###You can contact me:
 
-@raissaandra_ or andraderaissa08@gmail.com
+@raissaandra_ 
+
+or
+
+andraderaissa08@gmail.com
+
+![](https://media1.tenor.com/m/bxHky4v2x7EAAAAC/emoji-dance-z-emoji-asik-meme.gif)
+
